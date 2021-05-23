@@ -15,7 +15,7 @@ Today is your birthday mom,and this site is the gift I give you!!!
                           ┖┄┈┄┈┚
                         【妈妈生日快乐】
 
-I know it's a little ugly, but you kwon.....     :) 【doge】
+I know it's a little ugly, but you know.....     :) 【doge】
 
 All in all,I think there aren't any saying so good as "HAPPY BIRTHDAY"
 
